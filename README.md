@@ -5,4 +5,3 @@ Heyy! This is a project that I did in weekend. I live in Turkey and I needed to 
 To contact me:
 - My Website:
 - My Email: egeokyay754@gmail.com
-- My Discord: Dnix#3180
